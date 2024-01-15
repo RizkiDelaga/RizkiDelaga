@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **rizkidelagaprasetya@gmail.com**
 
-- 📄 Know about my experiences [http://rizkidelagaprasetya.com/cv](http://rizkidelagaprasetya.com/cv)
+- 📄 Know about my experiences [https://www.linkedin.com/in/rizkidelagaprasetya](https://www.linkedin.com/in/rizkidelagaprasetya)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
